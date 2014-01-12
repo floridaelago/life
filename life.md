@@ -18,7 +18,7 @@
 - 08/2011 Got a Cat named Nyxx
 - 29/08/2011 First day of College
 - 29/06/2012 - 03/07/2012 First time in Alberta.
-- 02/01/2013 Started working at Shopify
+- 02/01/2013 - ~08/2013 Started working at Shopify
 - 11/05/2013 - 05/28/2013 Trip to Japan
 - 05/28/2013 Lost my wallet(and found it) and missed my flight to Philippines.
 - 05/29/2013 - 06/06/2013 Went back to the Philippines
