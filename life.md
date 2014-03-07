@@ -27,3 +27,5 @@
 - 09/2013 - Left Shopify
 - 09/29/2013-12/14/2013 - Back in School
 - 02/03/2014 - Graduated
+- 02/28/2014 - Founded Koding Ruby
+- 03/06/2014 - Rebranded Koding Ruby to Kodermine
