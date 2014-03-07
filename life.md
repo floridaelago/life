@@ -21,9 +21,9 @@
 - 02/01/2013-08/2013 Started working at Shopify
 - 03/2013 - Met JJ(Love of my life)
 - 04/28/2013 - Started dating JJ
-- 11/05/2013-05/28/2013 Trip to Japan
+- 05/11/2013-05/28/2013 Trip to Japan
 - 05/28/2013 Lost my wallet(and found it) and missed my flight to Philippines.
-- 05/29/2013-06/06/2013 Vacay in the Philippines
+- 05/29/2013-g06/06/2013 Vacay in the Philippines
 - 09/2013 - Left Shopify
 - 09/29/2013-12/14/2013 - Back in School
 - 02/03/2014 - Graduated
