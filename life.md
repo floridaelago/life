@@ -21,11 +21,11 @@
 - 02/01/2013-08/2013 Started working at Shopify
 - 03/2013 - Met JJ(Love of my life)
 - 04/28/2013 - Started dating JJ
-- 05/11/2013-05/28/2013 Trip to Japan
-- 05/28/2013 Lost my wallet(and found it) and missed my flight to Philippines.
-- 05/29/2013-g06/06/2013 Vacay in the Philippines
+- 11/05/2013-28/05/2013 Trip to Japan
+- 28/05/2013 Lost my wallet(and found it) and missed my flight to Philippines.
+- 29/05/2013-g06/06/2013 Vacay in the Philippines
 - 09/2013 - Left Shopify
-- 09/29/2013-12/14/2013 - Back in School
-- 02/03/2014 - Graduated
-- 02/28/2014 - Founded Koding Ruby
-- 03/06/2014 - Rebranded Koding Ruby to Kodermine
+- 29/09/2013-12/14/2013 - Back in School
+- 03/02/2014 - Graduated
+- 28/02/2014 - Founded Koding Ruby
+- 06/03/2014 - Rebranded Koding Ruby to Kodermine
