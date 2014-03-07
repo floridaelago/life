@@ -12,7 +12,7 @@
 - ~2007 Started creating websites for clients.
 - 01/2009 Performed in a school musical.
 - 03/2009 Graduated Highschool
-- 04/07/2009 Immigrated to Canada
+- 07/04/2009 Immigrated to Canada
 - ~2010 First Job
 - 06/2011 Graduated Highschool
 - 08/2011 Got a Cat named Nyxx
