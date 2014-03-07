@@ -23,7 +23,7 @@
 - 04/28/2013 - Started dating JJ
 - 11/05/2013-28/05/2013 Trip to Japan
 - 28/05/2013 Lost my wallet(and found it) and missed my flight to Philippines.
-- 29/05/2013-g06/06/2013 Vacay in the Philippines
+- 29/05/2013-06/06/2013 Vacay in the Philippines
 - 09/2013 - Left Shopify
 - 29/09/2013-12/14/2013 - Back in School
 - 03/02/2014 - Graduated
