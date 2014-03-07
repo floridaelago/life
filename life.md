@@ -20,7 +20,7 @@
 - 29/06/2012-03/07/2012 First time in Alberta.
 - 02/01/2013-08/2013 Started working at Shopify
 - 03/2013 - Met JJ(Love of my life)
-- 04/28/2013 - Started dating JJ
+- 28/04/2013 - Started dating JJ
 - 11/05/2013-28/05/2013 Trip to Japan
 - 28/05/2013 Lost my wallet(and found it) and missed my flight to Philippines.
 - 29/05/2013-06/06/2013 Vacay in the Philippines
