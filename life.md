@@ -29,3 +29,8 @@
 - 03/02/2014 - Graduated
 - 28/02/2014 - Founded Koding Ruby
 - 06/03/2014 - Rebranded Koding Ruby to Kodermine
+- 13/03/2014 - Moved to Vancouver
+- 24/03/2014 - Started Working at Contractually
+- 17/06/2014 - First ever tech talk
+- 04/07/2014 - First time bouldering
+- 16/07/2014 - First baseball game
